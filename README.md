@@ -27,7 +27,7 @@
 
 <img src="https://media.giphy.com/media/ObNTw8Uzwy6KQ/giphy.gif" width="30px">&nbsp;***Talking about Personal Stuffs...***
 
-✔ Pronouns: ***He/His***<br>
+✔ Pronouns: ***He/Him***<br>
 ✔ I’m currently learning **agile methodology**<br>
 ✔ I'm learning German and French 'cause I wanna be a polyglot<br>
 ✔ Ask me about anything, I am happy to help<br>
